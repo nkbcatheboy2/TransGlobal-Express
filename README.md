@@ -1,2 +1,3 @@
 # TransGlobal-Express
 TransGlobal Express pvt ltd , an export import company in India, was TransGlobal Express Pvt. Ltd. has been one of the leading importers and exporters of best quality products.An aim to own the tag of an ideal supplying company on a global platform.
+Headquartered in Bareilly (Uttar Pradesh), we have over the years established a strong sourcing network across the globe; enabling us to provide the best quality products to our customers. We are dedicated to consistent quality, reliable service, competitive pricing and complete customer satisfaction. We recognize the importance of assisting our customers in achieving success in the global marketplace.
